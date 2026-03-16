@@ -24,6 +24,7 @@ Post on Monday evenings for maximum reach in 2026.
 | Friday    | 5–7 PM               | Medium          |
 | Saturday  | 9–11 AM or 7–9 PM    | Variable        |
 | Sunday    | 7–9 PM               | Medium          |
+Last updated: March 17, 2026
 
 ### How to Find Your Exact Best Time (Step-by-Step)
 1. Switch to Professional account
